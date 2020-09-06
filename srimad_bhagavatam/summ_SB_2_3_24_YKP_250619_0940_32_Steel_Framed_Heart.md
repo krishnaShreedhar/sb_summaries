@@ -24,10 +24,26 @@ the hairs stand on end.
     the instructions and not following the acharyas properly. Such a heart is called as steel-framed otherwise our 
     heart would be drenched in the love of Krishna.
 7. We should meticulously avoid all the 10 offenses while Chanting the holy names of the Lord.
-8.
-9.
-10.
-11.
-12.
-13.
-14.
+8. Symptoms are simply imitated by sahajiyas. Such willful imitating people have stone hearted and they have not even
+    given up the forbidden habits. *Steel-framed heart means the practice of bhakti is not culminating into significant 
+    changes in your thoughts, behaviour and actions.*
+9. Mind is continuously thinking of Lording over. This should be changed to constantly engage in the loving devotional
+    service of the Lord.
+10. Meeting of Ramananda Raya and Chaitanya Mahaprabhu. Chaitanya Mahaprabhu also talks about this in Rupa shiksha.
+    The seed of transcendental emotions. (bhavankura) The following 9 symptoms should manifest in activities: 
+    1. *Shantih* (perseverant/reserved/undisturbed) 
+    2. *Avyakta Kalatvam* (Utilization of time engaged in 
+        devotional services only. not wasting in other engagements Nectar of Devotion Chapter 18) 
+    3. *Viraktih* (Detachment - not engaging any kind of sense enjoyment/sense are not attracted/not artificially 
+        staying away. but even in the presence of allurements, not attracted to personal sense enjoyment 
+        -real test is agitation of mind) 
+    4. *Manashunyata* (Pridelessness - Inspite of possessing all good qualitites and the power that comes with that, 
+        one should be prideless knowing that it is all Krishna's mercy. e.g. Bhagirath Maharaj - 
+        even being ready to be insulted for the sake of Krishna) 
+    5. *Ashabandha* (Great hope - Because I'm nicely practicing sadhana and devotional service, 
+        I'm sure I'll go back home back to GodHead.)
+    6. *Samutkantha* (Having great eagerness to achieve success in devotional service. It is the only price that we 
+        need to pay to get love of God.) 
+    7. *Nama Gane sada ruchih* (Great attachment to the holy names of the Lord)
+    8. *Asakti* (Great attachment in singing the glories of Lord)
+    9. *Preetis tad vasati sthale* (Great attachment to the Holy Dham of Lord)
