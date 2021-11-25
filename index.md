@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## Welcome to Srimad Bhagavatam Summaries
 
 You can use the [editor on GitHub](https://github.com/krishnaShreedhar/sb_summaries/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
