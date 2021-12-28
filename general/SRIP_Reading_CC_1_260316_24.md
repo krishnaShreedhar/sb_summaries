@@ -9,4 +9,8 @@
    1. Cannot understand the love of Srimati Radharani.
    2. Beauty and attributes of Srimati Radharani is Lord's heart and soul
    3. Lord wanted to experience Radharani's emotions.
-7. 
+7. All the personalities from Krishna Lila, also appear in the Gaur Lila.
+8. Rahu and Ketu cause eclipses.
+9. During Lord Chaitanya's appearance, everybody including muslims (jokingly) were chanting the Holy names of Lord Hari.
+10. Description of great personalities bodies is being explained.
+11. 
