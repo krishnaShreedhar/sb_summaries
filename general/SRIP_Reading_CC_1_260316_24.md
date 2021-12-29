@@ -13,4 +13,5 @@
 8. Rahu and Ketu cause eclipses.
 9. During Lord Chaitanya's appearance, everybody including muslims (jokingly) were chanting the Holy names of Lord Hari.
 10. Description of great personalities bodies is being explained.
-11. 
+11. Pastimes of Lord Chaitanya 45:00 onwards
+12. Achintya Bheda Abheda philosophy by the example of eating dirt.
