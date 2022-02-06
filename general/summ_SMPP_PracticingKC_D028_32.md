@@ -23,4 +23,16 @@
 17. You may forget to remember Krishna, but Krishna will not forget you.
 18. **How to be strong in following Brahmacharya vrata when staying outside temple?** Brahman means spiritual. Abstains from material pleasures and strives towards spiritual goals.
 19. One who practices Brahman is a Brahmachari. Earlier, it was a norm to practice it in the early years of life, a foundation for life.
-20. 
+20. Bachelor - word is used to encourage practice of Brahmacharya to gain knowledge of Life (difference between matter and spirit).
+21. Brahmacharya needs to be practiced under the care of the spiritual master, be engaged in his service, follow his instructions.
+22. Brahmacharya or Sannyasa itself is not the goal of life, goal is Krishna Prema. Whatever favorable process is available, take that.
+23. Association of devotees who are practicing serious Brahmacharya. Follow the instructions of the spiritual master. Completely absorbed and occupied in questioning the nature of this world.
+24. Six devils - kama, krodha, lobha, moha, mada, matsarya.
+25. **How to avoid pride due to result of devotional service?** Chant Holy names of the Lord.
+26. Story of leprosy-afflicted devotee of Lord Chaitanya. Introspect how fallen and ignorant we are, how can we be proud. Absence of knowledge leads to pride.
+27. Shadow of Knowledge and Substance of Knowledge. A truly knowledgeable person is very humble.
+28. **Why do we feel force of bad habits even when we started KC?** You are on the path of recovery. Continue to take the medicine.
+29. Dos and Don'ts - Only when you follow both the things, Dos will be highly effective. Otherwise, the effect is nullified.
+30. Body and mind will be in sync when you follow both the dos and donts of Krishna Consciousness. 
+31. Tapasya means voluntarily accepting inconvenience to the body. Free will participation.
+32. Patience - Krishna has recommended that which is possible and practical.
